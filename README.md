@@ -1,0 +1,2 @@
+# praktikumteknikanimasi
+ UASKEL9
